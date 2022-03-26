@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- Learning languages (both 🧍 and 💻)
+- Listening to music 🎵 
+- Reading books 📚
+- Solving puzzles :jigsaw:
