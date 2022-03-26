@@ -1,0 +1,4 @@
+- Learning languages (both 🧍 and 💻)
+- Listening to music 🎵 
+- Reading books 📚
+- Solving puzzles :jigsaw:
